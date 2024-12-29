@@ -1,6 +1,6 @@
 # BBLink机场官网地址
 
-最新地址：[yun.bblinks.top](https://e4ab7aa52d3ad67f.cdn.jiashule.com/#/register?code=IXOcWAIF)
+最新地址：[yun.bblinks.top](https://e4ab7aa52d3ad67f.cdn.jiashule.com)
 
 ## BBLink介绍
 
